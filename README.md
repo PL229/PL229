@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PL229
+- 👀 I’m interested in IA developping
+- 🌱 I’m currently Working in International Trade Facilitation 
+- 💞️ I’m looking to collaborate on IA ingenieurs 
+- 📫 How to reach me : polelogistique229@gmail.com
